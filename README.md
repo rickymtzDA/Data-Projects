@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rickymtzDA
-- 👀 I’m interested in becoming a Data Analyst or Financial Analyst.
+- 👀 I’m a passionate Data Analyst/Financial Analyst.
 - 🌱 I’m currently learning more and more everyday to boost my skills as a Data Analyst.
 - 📫 How to reach me is through my email rickymartinez94@yahoo.com
 
